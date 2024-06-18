@@ -1,3 +1,1 @@
-# school
-AILIN loves ALI
 
